@@ -1,5 +1,5 @@
 # Privacy Policy
-Last updated: Oct 16, 2021
+Last updated: April 1, 2024
 
 Oh Crap Studios built the Lianer GAME as a Commercial game distributed on Oculus Store and Steam. The Game is intended for personal entertainment and to be used as is.
 
